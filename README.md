@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to change the code
 - 💞️ I’m looking to collaborate with you
 - 📫 How to contact me at alexwillspro
-~ 🫶 Send me a message to collaborate, we can to discuss and meet you online.
+~ 🫶 Send me a message to collaborate at syshelldistri@icloud.com, we can to discuss and meet you online.
 
 <!---
 alexwillsonline/alexwillsonline is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
